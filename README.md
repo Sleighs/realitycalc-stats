@@ -8,6 +8,6 @@ Each day we post studies and stats related to relationships and attraction on X.
 
 [https://realitycalc.com](https://realitycalc.com)
 
-## [The List of Links](https://github.com/Sleighs/realitycalc-stats/blob/master/stats-collection.md)
+### [The List of Links](https://github.com/Sleighs/realitycalc-stats/blob/master/stats-collection.md)
 
-### [Submit links to add here](https://github.com/Sleighs/realitycalc-stats/blob/master/submission-list.md)
+[Submit links to add here](https://github.com/Sleighs/realitycalc-stats/blob/master/submission-list.md)
