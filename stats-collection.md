@@ -189,6 +189,7 @@ https://archive.ph/EIbGN
 ## Porn
 - Onlyfans subscriber demographics study - https://link.springer.com/article/10.1007/s10508-022-02329-0#Sec9
 https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribing-to-onlyfans-are-not-who-you-might-think
+- https://nypost.com/2022/06/07/more-women-than-men-turned-on-by-aggressive-porn-study/
 
 ## Pregnancy
 - https://www.dailymail.co.uk/sciencetech/article-13677411/Women-trying-baby-bed-no-later-10-45pm-study-claims.html
