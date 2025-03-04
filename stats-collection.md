@@ -44,12 +44,14 @@ https://archive.ph/EIbGN
 - https://nypost.com/2018/12/20/women-disguise-their-voices-to-lure-men-into-sex-study-says/
   - https://phys.org/news/2018-12-women-voice.html
 
-## Biological differences (find better title)
-- spatial skill gender differences - https://www.sciencedaily.com/releases/2008/12/081217124430.htm
+## Biological Comparisons 
+- Spatial skill differences between sexes - https://www.sciencedaily.com/releases/2008/12/081217124430.htm
+- Empathy differences between sexes. Similar levels. Women self report having higher - https://asu.elsevierpure.com/en/publications/sex-differences-in-empathy-and-related-capacities
 
 ## Behavior
 - https://nypost.com/2017/06/16/science-confirms-womens-intuition-is-a-real-thing/
 - https://nypost.com/2024/05/09/lifestyle/women-who-hold-their-heads-still-are-likely-to-be-psychopaths/
+- Higher oxytocin linked to higher trust - https://pmc.ncbi.nlm.nih.gov/articles/PMC8186783/
 
 ## Body sizes and types
 - The relationships among height, penile length, and foot size - https://link.springer.com/article/10.1007/BF00849563
@@ -244,8 +246,9 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 ## Clown World, Gynocentric, Misandry or Misogyny
 - https://www.psychologytoday.com/us/blog/women-who-stray/201812/feminists-think-sexist-men-are-sexier-woke-men
 - https://nypost.com/2024/10/20/lifestyle/why-women-should-steer-clear-of-men-who-think-theyre-super-hot-or-super-not-study/
-- misandry incels https://www.tandfonline.com/doi/full/10.1080/00224499.2023.2248096
+- Misandry against "incels" https://www.tandfonline.com/doi/full/10.1080/00224499.2023.2248096
 - https://nypost.com/2025/02/02/lifestyle/why-the-jealous-husband-theory-is-straight-up-garbage/
+- Suggests women who vote against abortion are "voting against their own interests" - https://www.simplypsychology.org/the-psychology-behind-women-voting-against-their-own-interests.html
 
 ## Unrelated to Relationships and Attraction
 - Vegan dieting (as little as 8 weeks) shortens life expectancy - https://nypost.com/2024/07/29/lifestyle/2-months-of-eating-this-diet-knocks-years-off-your-biological-age/
