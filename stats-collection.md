@@ -227,10 +227,10 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 ## weight
 - https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4714799/
 
-## Workforce
+## Workforce/Careers/Jobs/Employment
 - https://www.pewresearch.org/short-reads/2024/07/11/among-young-us-workers-without-a-college-degree-men-and-women-hold-very-different-types-of-jobs/
 - https://quillette.com/2020/12/22/a-peculiar-kind-of-racist-patriarchy/
-
+- https://www.zippia.com/advice/male-dominated-careers-female/
 
 ///////////////////////////////////////////////////////////////////////////////////////////////////////////////
 //////////////////////////////////////////////////////////////////////////////////////////////////////////////
