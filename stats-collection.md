@@ -161,6 +161,7 @@ https://archive.ph/EIbGN
 - LATER FIRST MARRIAGE AND MARITAL SUCCESS - https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3437253/
 - https://www.dailymail.co.uk/femail/article-12944975/Married-womens-love-fades-quickly-husbands-long-marriages-data-suggests.html
 - Understanding Women’s Body Satisfaction: The Role of Husbands - https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2531253/
+- https://ourworldindata.org/grapher/women-required-to-obey-husband
 
 ## Medicine, Birth Control
 - https://www.frontiersin.org/journals/endocrinology/articles/10.3389/fendo.2023.1228504/full
