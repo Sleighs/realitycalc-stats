@@ -43,6 +43,7 @@ https://archive.ph/EIbGN
 - Men with unclear feelings are more attractive - https://www.psychologicalscience.org/news/releases/he-loves-me-he-loves-me-not-women-are-more-attracted-to-men-whose-feelings-are-unclear.html
 - https://nypost.com/2018/12/20/women-disguise-their-voices-to-lure-men-into-sex-study-says/
   - https://phys.org/news/2018-12-women-voice.html
+- How do men rate women on dating websites? 2014 - https://blogs.sas.com/content/sastraining/2014/10/10/how-do-men-rate-women-on-dating-websites/
 
 ## Biological Comparisons 
 - Spatial skill differences between sexes - https://www.sciencedaily.com/releases/2008/12/081217124430.htm
@@ -84,6 +85,7 @@ https://archive.ph/EIbGN
 
 ## Dating 
 - https://nypost.com/2024/09/13/lifestyle/nyc-is-the-worst-us-city-for-dating-study-confirms/
+- High school students and dating - https://www.graphsaboutreligion.com/p/high-school-students-are-growing
 
 ## Dating apps
 - https://www.datingsitesreviews.com/staticpages/index.php?page=Online-Dating-Industry-Facts-Statistics
@@ -134,6 +136,10 @@ https://archive.ph/EIbGN
 - https://www.sciencedirect.com/science/article/abs/pii/S1570677X19303284
 - measured vs reported cdc study height weight - https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7289317/
 
+## Health
+- Life expectancy - https://ourworldindata.org/life-expectancy
+- https://time.com/6270808/americas-life-expectancy-divide/
+
 ## Humor in relationships
 - https://www.sciencedirect.com/science/article/pii/S0191886922003646?via%3Dihub
 - Men tell more jokes, better marriage when wife thinks husband is funnier - https://www.dailymail.co.uk/sciencetech/article-11184657/Men-relationships-tell-jokes-think-theyre-funnier-partner-study-reveals.html
@@ -182,6 +188,8 @@ https://archive.ph/EIbGN
 ## Politics
 - https://www.dailymail.co.uk/sciencetech/article-7667033/Queens-gone-war-kings-centuries-historic-study-finds.html
 - https://nypost.com/2024/11/06/us-news/liberals-young-men-half-as-likely-to-id-as-very-masculine/
+- Abortion pro-life support by gender - https://www.americansurveycenter.org/newsletter/
+- https://navigatorresearch.org/2024-post-election-survey-gender-and-age-analysis-of-2024-election-results/abortion-is-going-to-be-a-major-issue-in-2024-but-for-whom/
 
 ## Politics and dating
 - https://www.innerbody.com/political-differences-while-dating
