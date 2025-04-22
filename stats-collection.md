@@ -44,6 +44,7 @@ https://archive.ph/EIbGN
 - https://nypost.com/2018/12/20/women-disguise-their-voices-to-lure-men-into-sex-study-says/
   - https://phys.org/news/2018-12-women-voice.html
 - How do men rate women on dating websites? 2014 - https://blogs.sas.com/content/sastraining/2014/10/10/how-do-men-rate-women-on-dating-websites/
+- Smiling effect on attraction - https://www.cbc.ca/news/science/smiling-men-less-attractive-to-women-study-1.1066058
 
 ## Biological Comparisons 
 - Spatial skill differences between sexes - https://www.sciencedaily.com/releases/2008/12/081217124430.htm
