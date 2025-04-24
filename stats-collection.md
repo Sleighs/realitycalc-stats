@@ -81,8 +81,6 @@ https://archive.ph/EIbGN
   - https://www.telegraph.co.uk/women/sex/9834903/Husbands-who-only-do-manly-chores-have-more-sex-study.html
   - https://archive.ph/EMH50
 
-## College
-- https://www.reddit.com/r/MensRights/comments/13ayioc/study_women_would_rather_have_a_successful_man/
 
 ## Dating 
 - https://nypost.com/2024/09/13/lifestyle/nyc-is-the-worst-us-city-for-dating-study-confirms/
@@ -105,6 +103,10 @@ https://archive.ph/EIbGN
 - Higher wedding spending linked to grater chance of divorce - https://www.psychologytoday.com/au/blog/the-myths-of-sex/202402/the-bigger-the-bling-the-shorter-the-marriage
 - Factors that predict divorce - https://onlinelibrary.wiley.com/doi/10.1111/j.1741-3737.2000.00737.x
 - https://www.bbc.com/worklife/article/20200121-why-promoted-women-are-more-likely-to-divorce
+
+## Education
+- Education level and public space prevalence - https://www.americansurveycenter.org/research/disconnected-places-and-spaces/
+- Women more interested in successful man than pursuing career - https://www.blick.ch/schweiz/zuerich/studie-ueber-studentinnen-an-uni-und-eth-zuerich-lieber-einen-erfolgreichen-mann-als-selber-karriere-machen-id18553784.html
 
 ## Families and poverty
 - https://ifstudies.org/blog/five-facts-about-families-and-poverty
