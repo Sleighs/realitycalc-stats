@@ -107,6 +107,7 @@ https://archive.ph/EIbGN
 ## Education
 - Education level and public space prevalence - https://www.americansurveycenter.org/research/disconnected-places-and-spaces/
 - Women more interested in successful man than pursuing career - https://www.blick.ch/schweiz/zuerich/studie-ueber-studentinnen-an-uni-und-eth-zuerich-lieber-einen-erfolgreichen-mann-als-selber-karriere-machen-id18553784.html
+- 2024 SAT Scores by race - https://www.cremieux.xyz/p/2024-sat-data-drop
 
 ## Families and poverty
 - https://ifstudies.org/blog/five-facts-about-families-and-poverty
@@ -250,6 +251,8 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 # Miscellaneous
 - wapo - difference in men's strength from past generations - https://archive.ph/BvBY0
 - fnf linktree - https://linktr.ee/fffacts
+- Forecasting the College Enrollment Gender Gap - https://taboo.substack.com/p/forecasting-college-enrollment
+- https://www.usa.edu/blog/mental-health-statistics/
 
 ## labor employment jobs
 - https://www.linkedin.com/pulse/white-collar-jobs-worst-hit-olivia-palak-crpcc/?trackingId=D4OjoaB0RzSFsnLwKqe%2BMQ%3D%3D
