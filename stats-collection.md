@@ -253,12 +253,13 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 - fnf linktree - https://linktr.ee/fffacts
 - Forecasting the College Enrollment Gender Gap - https://taboo.substack.com/p/forecasting-college-enrollment
 - https://www.usa.edu/blog/mental-health-statistics/
+- Median ages of countries 2018 - https://blog.richmond.edu/livesofmaps/2018/04/24/the-world-through-the-ages/
 
 ## labor employment jobs
 - https://www.linkedin.com/pulse/white-collar-jobs-worst-hit-olivia-palak-crpcc/?trackingId=D4OjoaB0RzSFsnLwKqe%2BMQ%3D%3D
   - "White-Collar Recession: Worst-Hit Jobs are in the Tech Industry", written by Aki Ito
 
-## Clown World, Gynocentric, Misandry or Misogyny
+## Clown World, Misandry or Misogyny
 - https://www.psychologytoday.com/us/blog/women-who-stray/201812/feminists-think-sexist-men-are-sexier-woke-men
 - https://nypost.com/2024/10/20/lifestyle/why-women-should-steer-clear-of-men-who-think-theyre-super-hot-or-super-not-study/
 - Misandry against "incels" https://www.tandfonline.com/doi/full/10.1080/00224499.2023.2248096
