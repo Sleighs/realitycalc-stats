@@ -244,6 +244,7 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 - https://www.pewresearch.org/short-reads/2024/07/11/among-young-us-workers-without-a-college-degree-men-and-women-hold-very-different-types-of-jobs/
 - https://quillette.com/2020/12/22/a-peculiar-kind-of-racist-patriarchy/
 - https://www.zippia.com/advice/male-dominated-careers-female/
+- Women are judged more favorably in the workplace - https://journals.sagepub.com/doi/10.1177/0146167220916622
 
 ///////////////////////////////////////////////////////////////////////////////////////////////////////////////
 //////////////////////////////////////////////////////////////////////////////////////////////////////////////
