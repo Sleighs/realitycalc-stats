@@ -255,6 +255,7 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 - Forecasting the College Enrollment Gender Gap - https://taboo.substack.com/p/forecasting-college-enrollment
 - https://www.usa.edu/blog/mental-health-statistics/
 - Median ages of countries 2018 - https://blog.richmond.edu/livesofmaps/2018/04/24/the-world-through-the-ages/
+- Most and least popular majors - https://scholarshipowl.com/blog/apply-for-scholarships/the-least-and-most-popular-majors-infographics/
 
 ## labor employment jobs
 - https://www.linkedin.com/pulse/white-collar-jobs-worst-hit-olivia-palak-crpcc/?trackingId=D4OjoaB0RzSFsnLwKqe%2BMQ%3D%3D
