@@ -185,9 +185,9 @@ https://archive.ph/EIbGN
 - Top 10 Things Everyone Should Know About Women Consumers - https://www.forbes.com/sites/bridgetbrennan/2015/01/21/top-10-things-everyone-should-know-about-women-consumers/
 
 ## Online dating
-  Couples who meet online
-  - https://nypost.com/2023/10/03/couples-who-meet-on-dating-apps-are-less-happy-in-marriages-study/
+  == Couples who meet online - https://nypost.com/2023/10/03/couples-who-meet-on-dating-apps-are-less-happy-in-marriages-study/
   - https://www.sciencedirect.com/science/article/abs/pii/S0747563223003242
+  - Most dangerous states for online dating - https://www.newsweek.com/map-shows-most-dangerous-states-online-dating-1942448
 
 ## Politics
 - https://www.dailymail.co.uk/sciencetech/article-7667033/Queens-gone-war-kings-centuries-historic-study-finds.html
@@ -256,6 +256,8 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 - https://www.usa.edu/blog/mental-health-statistics/
 - Median ages of countries 2018 - https://blog.richmond.edu/livesofmaps/2018/04/24/the-world-through-the-ages/
 - Most and least popular majors - https://scholarshipowl.com/blog/apply-for-scholarships/the-least-and-most-popular-majors-infographics/
+- https://www.pewresearch.org/social-trends/2014/09/24/record-share-of-americans-have-never-married/
+- https://www.usnews.com/education/best-colleges/paying-for-college/slideshows/national-universities-liberal-arts-colleges-with-the-best-roi?onepage
 
 ## labor employment jobs
 - https://www.linkedin.com/pulse/white-collar-jobs-worst-hit-olivia-palak-crpcc/?trackingId=D4OjoaB0RzSFsnLwKqe%2BMQ%3D%3D
