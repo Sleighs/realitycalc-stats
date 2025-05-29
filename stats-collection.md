@@ -174,6 +174,7 @@ https://archive.ph/EIbGN
 - Understanding Women’s Body Satisfaction: The Role of Husbands - https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2531253/
 - https://ourworldindata.org/grapher/women-required-to-obey-husband
 - African-American spouses with African-American spouses
+- Percent married 1950-2020 - https://www.usnews.com/news/elections/articles/2020-02-14/the-state-of-american-households-smaller-more-diverse-and-unmarried
 
 ## Medicine, Birth Control
 - https://www.frontiersin.org/journals/endocrinology/articles/10.3389/fendo.2023.1228504/full
@@ -258,8 +259,12 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 - https://www.usa.edu/blog/mental-health-statistics/
 - Median ages of countries 2018 - https://blog.richmond.edu/livesofmaps/2018/04/24/the-world-through-the-ages/
 - Most and least popular majors - https://scholarshipowl.com/blog/apply-for-scholarships/the-least-and-most-popular-majors-infographics/
+
+# Unsorted
 - https://www.pewresearch.org/social-trends/2014/09/24/record-share-of-americans-have-never-married/
 - https://www.usnews.com/education/best-colleges/paying-for-college/slideshows/national-universities-liberal-arts-colleges-with-the-best-roi?onepage
+- https://www.census.gov/library/stories/2022/08/does-marrying-younger-mean-marrying-more-often.html
+- https://familyinequality.wordpress.com/2017/09/23/whos-happy-in-marriage-not-just-rich-white-religious-men-but-kind-of/
 
 ## labor employment jobs
 - https://www.linkedin.com/pulse/white-collar-jobs-worst-hit-olivia-palak-crpcc/?trackingId=D4OjoaB0RzSFsnLwKqe%2BMQ%3D%3D
