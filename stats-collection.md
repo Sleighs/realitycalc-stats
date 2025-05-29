@@ -85,6 +85,7 @@ https://archive.ph/EIbGN
 ## Dating 
 - https://nypost.com/2024/09/13/lifestyle/nyc-is-the-worst-us-city-for-dating-study-confirms/
 - High school students and dating - https://www.graphsaboutreligion.com/p/high-school-students-are-growing
+- Never married women red flags - https://www.americansurveycenter.org/newsletter/how-bad-is-americas-romantic-recession/
 
 ## Dating apps
 - https://www.datingsitesreviews.com/staticpages/index.php?page=Online-Dating-Industry-Facts-Statistics
@@ -172,6 +173,7 @@ https://archive.ph/EIbGN
 - https://www.dailymail.co.uk/femail/article-12944975/Married-womens-love-fades-quickly-husbands-long-marriages-data-suggests.html
 - Understanding Women’s Body Satisfaction: The Role of Husbands - https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2531253/
 - https://ourworldindata.org/grapher/women-required-to-obey-husband
+- African-American spouses with African-American spouses
 
 ## Medicine, Birth Control
 - https://www.frontiersin.org/journals/endocrinology/articles/10.3389/fendo.2023.1228504/full
