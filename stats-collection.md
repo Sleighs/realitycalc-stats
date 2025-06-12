@@ -130,6 +130,7 @@ https://archive.ph/EIbGN
 
 ## Food and Eating
 - Marital eating habits - https://www.theatlantic.com/family/archive/2021/02/how-our-relationships-affect-what-we-eat/617907/
+- https://www.psychologytoday.com/sg/blog/attraction-evolved/201511/do-men-really-eat-93-percent-more-when-women-are-around
 
 ## Friendships
 - https://nypost.com/2024/05/15/lifestyle/men-are-more-likely-to-be-friends-if-they-dont-share-the-same-taste-in-women-study/
@@ -266,6 +267,7 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 - https://www.census.gov/library/stories/2022/08/does-marrying-younger-mean-marrying-more-often.html
 - https://familyinequality.wordpress.com/2017/09/23/whos-happy-in-marriage-not-just-rich-white-religious-men-but-kind-of/
 - https://thompsonj.substack.com/p/marriage-of-true-minds
+- https://climatecommunication.yale.edu/publications/exploring-gender-differences-in-the-american-diet/
 
 ## labor employment jobs
 - https://www.linkedin.com/pulse/white-collar-jobs-worst-hit-olivia-palak-crpcc/?trackingId=D4OjoaB0RzSFsnLwKqe%2BMQ%3D%3D
