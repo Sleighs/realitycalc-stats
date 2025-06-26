@@ -86,6 +86,7 @@ https://archive.ph/EIbGN
 - https://nypost.com/2024/09/13/lifestyle/nyc-is-the-worst-us-city-for-dating-study-confirms/
 - High school students and dating - https://www.graphsaboutreligion.com/p/high-school-students-are-growing
 - Never married women red flags - https://www.americansurveycenter.org/newsletter/how-bad-is-americas-romantic-recession/
+- Generational comparison - https://aibm.org/commentary/gen-zs-romance-gap-why-nearly-half-of-young-men-arent-dating/
 
 ## Dating apps
 - https://www.datingsitesreviews.com/staticpages/index.php?page=Online-Dating-Industry-Facts-Statistics
