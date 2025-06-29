@@ -188,6 +188,7 @@ https://archive.ph/EIbGN
 ## Money 
 - https://www.dailymail.co.uk/yourmoney/article-13677255/study-disproves-money-doesnt-buy-happiness.html
 - Top 10 Things Everyone Should Know About Women Consumers - https://www.forbes.com/sites/bridgetbrennan/2015/01/21/top-10-things-everyone-should-know-about-women-consumers/
+- https://www.vox.com/2018/2/19/17018380/gender-wage-gap-childcare-penalty
 
 ## Online dating
   == Couples who meet online - https://nypost.com/2023/10/03/couples-who-meet-on-dating-apps-are-less-happy-in-marriages-study/
