@@ -96,6 +96,7 @@ https://archive.ph/EIbGN
 - https://www.eviemagazine.com/post/only-15-women-interest-58-men-dating-apps-according-survey
   - https://archive.ph/DbJhY
 - https://www.technologyreview.com/2016/07/15/158803/how-tinder-feedback-loop-forces-men-and-women-into-extreme-strategies/
+- https://medium.com/@okcupid/the-case-for-an-older-woman-99d8cabacdf5
 
 ## Delusion, Random
 - https://www.dailymail.co.uk/wires/ap/article-13671369/Noncitizens-likely-participate-census-citizenship-question-study-says.html
@@ -227,6 +228,7 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 - How men and women respond to erotic literature 1973 -https://pubmed.ncbi.nlm.nih.gov/4805816/
 - The effects of two types of erotic literature on physiological and verbal measures of female sexual arousal 2010 - https://www.tandfonline.com/doi/abs/10.1080/00224497709550982
 - https://nypost.com/2024/09/12/lifestyle/the-ideal-amount-of-time-to-spend-having-sex-revealed-in-new-study/
+- Women's erotic rape fantasies: an evaluation of theory and research - https://pubmed.ncbi.nlm.nih.gov/18321031/
 
 ## Single parents
 - Single mothers have a higher risk of mood disorders
@@ -270,6 +272,7 @@ https://www.psychologytoday.com/us/blog/dinner-party-smart/202308/men-subscribin
 - https://familyinequality.wordpress.com/2017/09/23/whos-happy-in-marriage-not-just-rich-white-religious-men-but-kind-of/
 - https://thompsonj.substack.com/p/marriage-of-true-minds
 - https://climatecommunication.yale.edu/publications/exploring-gender-differences-in-the-american-diet/
+- https://www.zavamed.com/uk/does-breast-size-matter.html
 
 ## labor employment jobs
 - https://www.linkedin.com/pulse/white-collar-jobs-worst-hit-olivia-palak-crpcc/?trackingId=D4OjoaB0RzSFsnLwKqe%2BMQ%3D%3D
