@@ -122,6 +122,7 @@ https://archive.ph/EIbGN
 - https://www.pewresearch.org/social-trends/2013/07/02/the-rise-of-single-fathers/
 - https://www.census.gov/data/tables/time-series/demo/families/marital.html
 - https://www.census.gov/topics/families/families-and-households/library/visualizations.html
+- https://www.census.gov/library/stories/2021/04/number-of-children-living-only-with-their-mothers-has-doubled-in-past-50-years.html
 
 ## Fertility Rates
 - https://ourworldindata.org/fertility-rate
