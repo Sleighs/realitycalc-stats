@@ -169,6 +169,7 @@ https://archive.ph/EIbGN
 - https://www.psychologytoday.com/us/blog/meet-catch-and-keep/202407/when-women-cheat-its-usually-for-these-10-reasons
 - https://www.psychologytoday.com/au/blog/the-myths-of-sex/202308/does-infidelity-peak-in-the-seventh-year-of-marriage
 - ashley madison study on infidelity - https://www.psychologytoday.com/us/blog/all-about-sex/202409/do-people-regret-extra-marital-affairs-actually-many-dont
+- Studies: Women Genetically Programmed to Cheat - https://abcnews.go.com/GMA/OnCall/story?id=1469078
 
 ## Marriage
 - https://ifstudies.org/blog/resolving-conflict-new-study-shows-what-long-term-couples-can-teach-us
